@@ -1,1 +1,1 @@
-📄 [Ver documento completo del análisis en PDF](CONTRATO DE SERVICIOS BONA PARTY 2025.pdf)
+📄 [Ver documento completo del análisis en PDF](CONTRATO_DE_SERVICIOS_BONA_PARTY_2025.pdf)
